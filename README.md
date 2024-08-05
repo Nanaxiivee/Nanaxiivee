@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Nana!
+- 👀 I’m interested in games, horror's and blood!
+- 🌱 I’m currently learning Germany
+- 😄 Pronouns: she/he 
+- ⚡ Fun fact: i am from Poland!
